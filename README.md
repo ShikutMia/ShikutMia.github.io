@@ -46,7 +46,9 @@ Social media platforms should promote helpful and positive interactions among us
 Social media firms must encourage safe and wholesome online communities. They can achieve this by putting policies and procedures in place to stop the dissemination of harmful content and to assist people who may be at risk of suicide. This entails keeping an eye out for warning indicators and giving instant access to crisis help and resources. 
 
 ## Conclusion
-In conclusion, social media can have a double-edged effect on efforts to prevent suicide. It might increase feelings of helplessness and loneliness, but it can also serve as a platform for connection and support. We can take action to use social media as a tool for prevention, lowering the risk of suicide and encouraging better mental health outcomes, by knowing the link between social media and suicide.
+In conclusion, social media can have a double-edged effect on efforts to prevent suicide. It might increase feelings of helplessness and loneliness, but it can also serve as a platform for connection and support. We can take action to use social media as a tool for prevention, lowering the risk of suicide and encouraging better mental health outcomes, by knowing the link between social media and suicide.<br>
+![suicide](7.jpeg)
+
 > “You can do things today that shape your unknown future. Make every day the time when you turn what you don't know into what would like to happen.” — Michael Nulty.
 
 ## References
