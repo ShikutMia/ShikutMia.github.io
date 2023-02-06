@@ -53,15 +53,15 @@ In conclusion, social media can have a double-edged effect on efforts to prevent
 > “You can do things today that shape your unknown future. Make every day the time when you turn what you don't know into what would like to happen.” — Michael Nulty.
 
 ## References
-- World Health Organization Mental health: suicide prevention. https://www.who.int/news-room/fact-sheets/detail/suicide//
--	Nancy Schimelpfening, MS is the administrator for the non-profit depression support group Depression Sanctuary,2021.
+-- World Health Organization Mental health: suicide prevention. https://www.who.int/news-room/fact-sheets/detail/suicide//
+--	Nancy Schimelpfening, MS is the administrator for the non-profit depression support group Depression Sanctuary,2021.
 https://www.verywellmind.com/why-do-people-commit-suicide-1067515//
-- Hagihara A, Tarumi K, Abe T. Media suicide-reports, Internet use and the occurrence of suicides between 1987 and 2005 in Japan. BMC Public Health. 2007;7:321. [PMC free article] [PubMed] [Google Scholar]
-- Kowalski RM, Limber SP, Agatston PW. Cyber Bullying: Bullying in the Digital Age. Malden, MA: Blackwell Publishing Ltd; 2008 [Google Scholar]
-- Shah A. The relationship between general population suicide rates and the Internet: a cross-national study. Suicide Life Threat Behave.  [Google Scholar]
--	World Health Organization Mental health: suicide prevention. https://www.who.int/news-room/fact-sheets/detail/suicide//
--	Nancy Schimelpfening, MS is the administrator for the non-profit depression support group Depression Sanctuary,2021.
+-- Hagihara A, Tarumi K, Abe T. Media suicide-reports, Internet use and the occurrence of suicides between 1987 and 2005 in Japan. BMC Public Health. 2007;7:321. [PMC free article] [PubMed] [Google Scholar]
+-- Kowalski RM, Limber SP, Agatston PW. Cyber Bullying: Bullying in the Digital Age. Malden, MA: Blackwell Publishing Ltd; 2008 [Google Scholar]
+-- Shah A. The relationship between general population suicide rates and the Internet: a cross-national study. Suicide Life Threat Behave.  [Google Scholar]
+--	World Health Organization Mental health: suicide prevention. https://www.who.int/news-room/fact-sheets/detail/suicide//
+--	Nancy Schimelpfening, MS is the administrator for the non-profit depression support group Depression Sanctuary,2021.
 https://www.verywellmind.com/why-do-people-commit-suicide-1067515//
--	Hagihara A, Tarumi K, Abe T. Media suicide-reports, Internet use and the occurrence of suicides between 1987 and 2005 in Japan. BMC Public Health. 2007;7:321. [PMC free article] [PubMed] [Google Scholar]
--	Kowalski RM, Limber SP, Agatston PW. Cyber Bullying: Bullying in the Digital Age. Malden, MA: Blackwell Publishing Ltd; 2008 [Google Scholar]
--	Shah A. The relationship between general population suicide rates and the Internet: a cross-national study. Suicide Life Threat Behave.  [Google Scholar]
+--	Hagihara A, Tarumi K, Abe T. Media suicide-reports, Internet use and the occurrence of suicides between 1987 and 2005 in Japan. BMC Public Health. 2007;7:321. [PMC free article] [PubMed] [Google Scholar]
+--	Kowalski RM, Limber SP, Agatston PW. Cyber Bullying: Bullying in the Digital Age. Malden, MA: Blackwell Publishing Ltd; 2008 [Google Scholar]
+--	Shah A. The relationship between general population suicide rates and the Internet: a cross-national study. Suicide Life Threat Behave.  [Google Scholar]
